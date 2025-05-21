@@ -1,4 +1,4 @@
-pi## Hi there 👋
+coinpi## Hi there 👋
 
 <!--
 
