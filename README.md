@@ -1,2 +1,1 @@
-Blmitkc # .github
-Mit
+blagojmit@gmail.com 
