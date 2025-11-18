@@ -1,2 +1,1 @@
-# .github
-Mit
+blagojmit@gmail.com
