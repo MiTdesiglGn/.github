@@ -1,1 +1,2 @@
-blagojmit@gmail.com
+
+Slide clipboard items to delete themblagojmit@gmail.com
